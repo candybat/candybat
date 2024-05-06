@@ -10,7 +10,7 @@
  
 [rentry](https://rentry.co/seraph-ofthe-end) . [gb](https://vampyre.123guestbook.com/#) 
 <br>
-[cbox](https://my.cbox.ws/hyakuya) . [world of txt](https://www.yourworldoftext.com/~hyakuya/)
+[world of txt](https://www.yourworldoftext.com/~hyakuya/)
 
 ***
 
