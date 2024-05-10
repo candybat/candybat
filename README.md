@@ -9,9 +9,6 @@
 <div align="center"> 
  
 [rentry](https://rentry.co/seraph-ofthe-end) . [gb](https://vampyre.123guestbook.com/#) 
-<br>
-[world of txt](https://www.yourworldoftext.com/~hyakuya/)
-
 ***
 
 
