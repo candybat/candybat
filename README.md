@@ -26,11 +26,13 @@
 
 <div align="center"> 
 
-  ![](https://files.catbox.moe/k9rnbe.gif) ![](https://files.catbox.moe/2wo7d2.webp) ![](https://camo.githubusercontent.com/5c79baa38aa621bcbf633d0a8edf6853912b7f996cd0b65065de4e35f7b61023/68747470733a2f2f77696c6172646f2e6372642e636f2f6173736574732f696d616765732f67616c6c65727930382f66396235383163632e706e673f763d6236326539343536) ![](https://files.catbox.moe/xyehyz.gif) ![](https://files.catbox.moe/d2dcfj.png)
-</div>
+  ![](https://files.catbox.moe/k9rnbe.gif) ![](https://files.catbox.moe/2wo7d2.webp) ![](https://camo.githubusercontent.com/5c79baa38aa621bcbf633d0a8edf6853912b7f996cd0b65065de4e35f7b61023/68747470733a2f2f77696c6172646f2e6372642e636f2f6173736574732f696d616765732f67616c6c65727930382f66396235383163632e706e673f763d6236326539343536) ![](https://files.catbox.moe/xyehyz.gif) ![](https://files.catbox.moe/d2dcfj.png) 
+</div> 
 
   <div align="center">
-   
+
+   ![](https://file.garden/Zh4xdQJ0WQee2JOI/MIO1) ![](https://file.garden/Zh4xdQJ0WQee2JOI/SHUN)
+   </br>
  ![](https://files.catbox.moe/pjo8h2.png) ![](https://files.catbox.moe/787k5v.png) ![](https://files.catbox.moe/c59bfl.png) ![](https://files.catbox.moe/px0bd5.jpg) ![](https://files.catbox.moe/8pg4a7.gif)  
  ![](https://files.catbox.moe/0patg1.webp) ![](https://files.catbox.moe/84f35w.gif) ![](https://files.catbox.moe/mvbczm.gif) ![](https://files.catbox.moe/jgx52d.webp) 
  
