@@ -8,7 +8,7 @@
 </p>
 <div align="center"> 
  
-[rentry](https://rentry.co/seraph-ofthe-end) . [gb](https://vampyre.123guestbook.com/#) 
+[rentry](https://rentry.co/seraph-ofthe-end) . [2nd rentry](https://rentry.co/demonsmercy) . [gb](https://vampyre.123guestbook.com/#) 
 ***
 
 
