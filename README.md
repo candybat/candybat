@@ -8,7 +8,7 @@
 </p>
 <div align="center"> 
  
-◟๑◝ [rentry](https://rentry.co/seraph-ofthe-end) . [gb](https://vampyre.123guestbook.com/#) 𐔌՞ᱹ ﹼ ̫ ᱹ՞𐦯
+◟๑◝ [rentry](https://rentry.co/seraph-ofthe-end) . [guestbook](https://hyakuya.123guestbook.com/) 𐔌՞ᱹ ﹼ ̫ ᱹ՞𐦯
 ***
 
 
