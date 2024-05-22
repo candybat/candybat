@@ -4,11 +4,11 @@
 
 
 <p align="center"> 
- <img src="https://files.catbox.moe/q7qes0.png"/>
+ <img src="https://files.catbox.moe/cdpgls.png"/>
 </p>
 <div align="center"> 
  
-[rentry](https://rentry.co/seraph-ofthe-end) . [gb](https://vampyre.123guestbook.com/#) 
+◟๑◝ [rentry](https://rentry.co/seraph-ofthe-end) . [gb](https://vampyre.123guestbook.com/#) 𐔌՞ᱹ ﹼ ̫ ᱹ՞𐦯
 ***
 
 
