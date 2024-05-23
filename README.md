@@ -11,7 +11,7 @@
 ◟๑◝ [rentry](https://rentry.co/seraph-ofthe-end) . [guestbook](https://hyakuya.123guestbook.com/) 𐔌՞ᱹ ﹼ ̫ ᱹ՞𐦯
 ***
 
-
+<img src="https://files.catbox.moe/nk6nu1.webp"/>
 
 
 <div align="center"> 
