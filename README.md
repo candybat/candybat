@@ -8,7 +8,7 @@
 </p>
 <div align="center"> 
  
-◟๑◝ !!!! ꣑୧ 
+◟๑◝ i go by alot of names soz! ꣑୧ 
 ***
 
 <img src="https://files.catbox.moe/nk6nu1.webp"/>
