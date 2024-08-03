@@ -4,11 +4,10 @@
 
 
 <p align="center"> 
- <img src="https://files.catbox.moe/cdpgls.png"/>
+ <img src="https://files.catbox.moe/zjrmdm.png"/>
 </p>
 <div align="center"> 
  
-◟๑◝ i go by alot of names soz! ꣑୧ 
 ***
 
 <img src="https://files.catbox.moe/nk6nu1.webp"/>
